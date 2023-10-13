@@ -1,0 +1,2 @@
+- Tassaklarim kirli kan
+- yasa killoki abi
